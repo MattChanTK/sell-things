@@ -1,4 +1,4 @@
-# Moving Sales
+# Moving Sale
 
 ## Ergonomic Desk Chair -- $ 150
 
