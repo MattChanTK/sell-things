@@ -10,6 +10,7 @@ Free delivery to Seattle, Bellevue and Redmond!
 
 * Fully functional
 * Very ergonomic; can sit for the whole day comfortably.
+* $229.99 when new: https://www.officedepot.com/a/products/604924/WorkPro-1000-Series-Mid-Back-Mesh/
 
 ## Floor Fan -- $ 10
 
