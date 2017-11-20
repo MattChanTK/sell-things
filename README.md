@@ -1,5 +1,7 @@
 # Moving Sale 2017
 
+Free delivery to Seattle, Bellevue and Redmond!
+
 ## Ergonomic Desk Chair -- $ 150
 
 <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Chair1.jpg" width="30%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Chair2.jpg" width="30%">
@@ -45,4 +47,19 @@
 
 * TARVA Nightstand, Pine ($39.99 new): http://www.ikea.com/us/en/catalog/products/50219609/
 
+## Microwave Oven -- $ 15
 
+<img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Microwave1.jpg" width="30%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Microwave2.jpg" width="30%">  
+
+<img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Microwave3.jpg" width="30%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Microwave4.jpg" width="30%">
+
+
+* Fully functional
+* Sunbeam; color Black
+* 900W
+
+## Bar Stool -- $ 10
+
+<img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Stool1.jpg" width="30%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Stool2.jpg" width="30%">  
+
+* Made of wood
