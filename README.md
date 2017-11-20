@@ -37,7 +37,7 @@
 <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Cupboard1.jpg" width="25%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Cupboard3.jpg" width="25%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Cupboard2.jpg" width="15%">
 
 * KALLAX High Gloss White ($49.99 new): http://www.ikea.com/us/en/catalog/products/20275814/#/50305739
-* Include 2 black baskets and 2 [inserts with door](http://www.ikea.com/us/en/catalog/products/20278167)
+* Include 2 black baskets and 2 [inserts with door](http://www.ikea.com/us/en/catalog/products/20278167) ($15 each new)
 
 ## Nightstand -- $ 20
 
