@@ -64,7 +64,7 @@ Free delivery to Seattle, Bellevue and Redmond!
 
 * Made of wood
 
-## Full size Mattress -- $ 20
+## Full-Size Mattress -- $ 20
 
 <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Mattress2.jpg" width="40%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Mattress1.jpg" width="25%">  
 
