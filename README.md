@@ -8,6 +8,7 @@ Free delivery to Seattle, Bellevue and Redmond!
 
 <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Chair3.jpg" width="30%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Chair4.jpg" width="30%">
 
+* WorkPro® 1000 Series Mid-Back Mesh Task Chair, Black
 * Fully functional
 * Very ergonomic; can sit for the whole day comfortably.
 * $229.99 when new: https://www.officedepot.com/a/products/604924/WorkPro-1000-Series-Mid-Back-Mesh/
