@@ -9,6 +9,7 @@ Free delivery to Seattle, Bellevue and Redmond!
 <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Chair3.jpg" width="30%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Chair4.jpg" width="30%">
 
 * Fully functional
+* Very ergonomic; can sit for the whole day comfortably.
 
 ## Floor Fan -- $ 10
 
