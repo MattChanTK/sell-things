@@ -44,12 +44,6 @@ Free delivery to Seattle, Bellevue and Redmond!
 * KALLAX High Gloss White ($49.99 new): http://www.ikea.com/us/en/catalog/products/20275814/#/50305739
 * Include 2 black baskets and 2 [inserts with door](http://www.ikea.com/us/en/catalog/products/20278167) ($15 each new)
 
-## Nightstand -- $ 20
-
-<img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Nightstand1.jpg" width="20%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/NightStand2.jpg" width="20%">  <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Nightstand3.jpg" width="25%">
-
-* TARVA Nightstand, Pine ($39.99 new): http://www.ikea.com/us/en/catalog/products/50219609/
-
 ## Microwave Oven -- $ 15
 
 <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Microwave1.jpg" width="30%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Microwave2.jpg" width="30%">  
@@ -67,7 +61,7 @@ Free delivery to Seattle, Bellevue and Redmond!
 
 * Made of wood
 
-## Full-Size Mattress -- $ 20
+## Full-Size Mattress -- $ 40
 
 <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Mattress2.jpg" width="40%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Mattress1.jpg" width="25%">  
 
