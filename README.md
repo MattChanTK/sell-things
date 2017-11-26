@@ -2,7 +2,7 @@
 
 Free delivery to Seattle, Bellevue and Redmond!
 
-## Ergonomic Desk Chair -- $ 150
+## Ergonomic Desk Chair -- $ 90
 
 <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Chair1.jpg" width="30%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Chair2.jpg" width="30%">
 
