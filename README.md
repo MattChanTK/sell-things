@@ -13,12 +13,6 @@ Free delivery to Seattle, Bellevue and Redmond!
 * Very ergonomic; can sit for the whole day comfortably.
 * $229.99 when new: https://www.officedepot.com/a/products/604924/WorkPro-1000-Series-Mid-Back-Mesh/
 
-## Floor Fan -- $ 10
-
-<img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Fan1.jpg" width="30%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Fan2.jpg" width="30%">
-
-* Fully functional
-
 ## Sleeper Sofa -- $ 50
 
 <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Sofa1.jpg" width="30%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Sofa2.jpg" width="30%">
@@ -37,12 +31,6 @@ Free delivery to Seattle, Bellevue and Redmond!
 * Not a smart TV
 * Cost $319.99 when new: https://www.bestbuy.com/site/samsung-40-class-39-1-2-diag--led-1080p-hdtv/8552023.p?skuId=8552023
 
-## 2 x 2 Shelving Unit -- $ 50
-
-<img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Cupboard1.jpg" width="25%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Cupboard3.jpg" width="25%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Cupboard2.jpg" width="15%">
-
-* KALLAX High Gloss White ($49.99 new): http://www.ikea.com/us/en/catalog/products/20275814/#/50305739
-* Include 2 black baskets and 2 [inserts with door](http://www.ikea.com/us/en/catalog/products/20278167) ($15 each new)
 
 ## Microwave Oven -- $ 15
 
@@ -55,8 +43,3 @@ Free delivery to Seattle, Bellevue and Redmond!
 * Sunbeam; color Black
 * 900W
 
-## Bar Stool -- $ 10
-
-<img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Stool1.jpg" width="30%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Stool2.jpg" width="30%">  
-
-* Made of wood
