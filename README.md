@@ -60,11 +60,3 @@ Free delivery to Seattle, Bellevue and Redmond!
 <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Stool1.jpg" width="30%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Stool2.jpg" width="30%">  
 
 * Made of wood
-
-## Full-Size Mattress -- $ 40
-
-<img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Mattress2.jpg" width="40%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Mattress1.jpg" width="25%">  
-
-* IKEA MATRAND Latex Mattress ($399.99 new): http://www.ikea.com/us/en/catalog/products/00272190/
-* Full size
-* Medium firm
