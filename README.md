@@ -31,15 +31,3 @@ Free delivery to Seattle, Bellevue and Redmond!
 * Not a smart TV
 * Cost $319.99 when new: https://www.bestbuy.com/site/samsung-40-class-39-1-2-diag--led-1080p-hdtv/8552023.p?skuId=8552023
 
-
-## Microwave Oven -- $ 15
-
-<img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Microwave1.jpg" width="30%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Microwave2.jpg" width="30%">  
-
-<img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Microwave3.jpg" width="30%"> <img src="https://github.com/tuzzer/sell-things/raw/master/photos/moving-sales-2017/Microwave4.jpg" width="30%">
-
-
-* Fully functional
-* Sunbeam; color Black
-* 900W
-
